@@ -4,4 +4,4 @@
 
 #oh nikl oo
 
-2. chal ay
+2. hi
